@@ -1,2 +1,0 @@
-# mayckon-games
-mayckon games
